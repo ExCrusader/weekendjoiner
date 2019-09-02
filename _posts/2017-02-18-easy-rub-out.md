@@ -1,0 +1,2 @@
+<a href=" https://t.umblr.com/redirect?z=http%3A%2F%2Fwww.popularwoodworking.com%2Fprojects%2Faw-extra-81513-easy-rub-out&amp;t=YWFmZWFkZjI4N2ZlNmVmOTI4YTMxMjRkN2NhNTQ4MzkxZjcwNjRkMCwwTGN2MGZFSQ%3D%3D&amp;b=t%3AqHVAHG4mRdaot7uHHBcIRA&amp;p=https%3A%2F%2Fweekendjoiner.com%2Fpost%2F157418284441%2Feasy-rub-out-three-quick-steps-to-a-silky-smooth&amp;m=0">
+                        Easy Rub-Out - Three quick steps to a silky-smooth finish                    </a>
