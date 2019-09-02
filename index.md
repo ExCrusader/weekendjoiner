@@ -2,6 +2,8 @@
 title: The Weekend Joiner
 ---
 
+# The Weekend Joiner
+
 A personal woodworking journey.
 
 <ul>
