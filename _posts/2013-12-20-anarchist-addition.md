@@ -1,0 +1,2 @@
+<a href=" https://t.umblr.com/redirect?z=http%3A%2F%2Fblog.lostartpress.com%2F2012%2F07%2F23%2Fan-overdue-addition-to-the-anarchists-tool-chest%2F&amp;t=ZTg5ZjE2M2M5NDc1ZjgwZjVhY2YzYjc1OTQ2NTdlNGU5ZTk4NjEyMCxzbjdYVkQxVA%3D%3D&amp;b=t%3AqHVAHG4mRdaot7uHHBcIRA&amp;p=https%3A%2F%2Fweekendjoiner.com%2Fpost%2F70556983113%2Fan-overdue-addition-to-the-anarchists-tool-chest&amp;m=0">
+                        An Overdue Addition to The Anarchist's Tool Chest                    </a>
