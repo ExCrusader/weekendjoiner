@@ -1,3 +1,9 @@
+---
+title: The Weekend Joiner
+---
+
+A personal woodworking journey.
+
 <ul>
   {% for post in site.posts %}
     <li>
