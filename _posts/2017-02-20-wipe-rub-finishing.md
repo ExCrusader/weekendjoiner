@@ -1,0 +1,2 @@
+<a href=" https://t.umblr.com/redirect?z=http%3A%2F%2Fwww.popularwoodworking.com%2Fprojects%2Faw-extra-32014-wipe-onrub-off-finishing&amp;t=YWQwOTdjMDRhMjdmNDM0ZjFlMzM3ODNiNTY1NzRhNjJlYmNlZWQ5YyxWZW5qa1RMMg%3D%3D&amp;b=t%3AqHVAHG4mRdaot7uHHBcIRA&amp;p=https%3A%2F%2Fweekendjoiner.com%2Fpost%2F157486771571%2Fwipe-onrub-off-finishing&amp;m=0">
+                        Wipe-On/Rub-Off Finishing                    </a>
