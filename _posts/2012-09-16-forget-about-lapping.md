@@ -11,4 +11,4 @@ title:  "Forget about lapping"
 
 > But again, the best recommendation is to try it first. Not every plane needs to have its sole flattened. If it works fine, don't fix what isn't broke.
 
--- Bob Rozaieski - Logan Cabinet Shoppe
+> -- [Bob Rozaieski](http://brfinewoodworking.com) [[source]](http://google.com)
