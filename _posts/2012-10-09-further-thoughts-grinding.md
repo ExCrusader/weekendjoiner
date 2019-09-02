@@ -1,0 +1,2 @@
+<a href=" https://t.umblr.com/redirect?z=http%3A%2F%2Fwww.toolsforworkingwood.com%2Fstore%2Fblog%2F453%2Ftitle%2FFurther%2BThoughts%2BOn%2BGrinding&amp;t=ZmZmNWJhMGQ1ZGYxY2E1MGNkZTE4MzMwMDZjMWVhMjNjMjU1MTQwNCx4RjVpUXUyUg%3D%3D&amp;b=t%3AqHVAHG4mRdaot7uHHBcIRA&amp;p=https%3A%2F%2Fweekendjoiner.com%2Fpost%2F33229206775%2Fjoels-further-thoughts-on-grinding&amp;m=0">
+                        Joel's Further Thoughts on Grinding                    </a>
