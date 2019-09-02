@@ -1,2 +1,2 @@
 # weekendjoiner
-A personal woodworking journey.
+A personal woodworking journey. weekendjoiner.com
