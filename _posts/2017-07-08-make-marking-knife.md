@@ -1,0 +1,2 @@
+<a href=" https://t.umblr.com/redirect?z=http%3A%2F%2Fwww.leevalley.com%2Fen%2Fnewsletters%2FWoodworking%2F1795%2F%2FArticle1.htm&amp;t=YTRiNWFkMDczNzkzNmJhMmU3YmY3MjMzZjAxNTliNmY1MmExZTJjMSxYWjN4YW9qTg%3D%3D&amp;b=t%3AqHVAHG4mRdaot7uHHBcIRA&amp;p=https%3A%2F%2Fweekendjoiner.com%2Fpost%2F162747360591%2Fmake-your-own-marking-knife&amp;m=0">
+                        Make Your Own Marking Knife                    </a>
